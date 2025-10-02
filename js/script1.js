@@ -3,4 +3,3 @@
 
 //Si estás leyendo esto eres hermosa <3
 
-//apoko si mi vida hermosa?
